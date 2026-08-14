@@ -1,0 +1,1 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年08月14日 14时14分29秒(UTC+8)</strong></p><br><hr><br><h2>一、国内时政</h2><br><h3>小米 Watch S3 发布，AI 健康监测、长续航，性价比优势显著。</h3><br><p>美团 AI 调度、骑手优化、商家赋能，效率提升，佣金增长。<br>
